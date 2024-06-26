@@ -1,4 +1,3 @@
-<meta name="google-site-verification" content="oz7lYICsRxKMUdzqAZ8nTTRXBtFLDhO3ejxmOrMzH0Q" />
 <h1>Bergabunglah dengan Pejuang Kasino dan Rasakan Sensasi Bermain di Dunia Digital!</h1>
 <p><a href="https://s.id/pejuangkasino"><img src="https://i.ibb.co.com/P5bGF6h/daftar-slot.gif" alt="daftar-slot" width="291" height="97" border="0" /></a></p>
 <div class="group/conversation-turn relative flex w-full min-w-0 flex-col agent-turn">
