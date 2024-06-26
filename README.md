@@ -1,5 +1,5 @@
 <h1>Bergabunglah dengan Pejuang Kasino dan Rasakan Sensasi Bermain di Dunia Digital!</h1>
-<p><a href="https://ibb.co.com/XzdxjCs"><img src="https://i.ibb.co.com/P5bGF6h/daftar-slot.gif" alt="daftar-slot" width="291" height="97" border="0" /></a></p>
+<p><a href="https://s.id/pejuangkasino"><img src="https://i.ibb.co.com/P5bGF6h/daftar-slot.gif" alt="daftar-slot" width="291" height="97" border="0" /></a></p>
 <div class="group/conversation-turn relative flex w-full min-w-0 flex-col agent-turn">
 <div class="flex-col gap-1 md:gap-3">
 <div class="flex flex-grow flex-col max-w-full">
